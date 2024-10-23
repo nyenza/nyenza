@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Agreynyenza
 - 👀 I’m interested in coding and software developments
 - 🌱 I’m currently learning coding
-- 💞️ I’m looking to collaborate on activities related to website and softare development
+- 💞️ I’m looking to collaborate on activities related to website and software development
 - 📫 How to reach me agreysonnyenza@gmail.com / whatsapp +255 763 993 653
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
